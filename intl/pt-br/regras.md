@@ -6,7 +6,7 @@
 
 #### Data de início
 
-25 de junho, 2016. [COLOQUE SUA DATA AQUI]
+10 de outubro, 2021.
 
 ## Regras adicionais
 
